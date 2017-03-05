@@ -10,3 +10,5 @@ no regret
 to be the first
 
 to be different
+
+to be a man
